@@ -1,7 +1,7 @@
 Fubo TV Login Account | Step-by-Step Sign In Guide, App Download & Customer Support
+============
 
 Introduction
-============
 
 This guide provides a clear, step-by-step process to help users securely log in to their Fubo TV accounts, download the official Fubo TV app, and access customer support. Fubo TV is a popular streaming service offering live sports, news, and entertainment content across multiple devices.
 
